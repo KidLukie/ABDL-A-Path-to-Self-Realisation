@@ -3,13 +3,13 @@
 
 ***
 ### PREFACE <br/>
-This document is not intended to be an academic paper, nor claims to be. It is also not an essay, a reflection, nor any kind of article in any classical sense. I am certainly not claiming to be an expert in any field, nor do I intend for this to be a rigorous analysis of Adult Baby / Diaper Lover (ABDL) spectra. It is a collection of insights discovered over time written into some cohesive format. It will be gradually updated and expanded over time as motivation and expressiveness strike, a live and continually evolving document.
+This document is not intended to be an academic, nor claims to be. It is also not an essay, a reflection, nor any kind of article in any classical sense. I am certainly not claiming to be an expert in any field, nor do I intend for this to be a rigorous analysis of Adult Baby / Diaper Lover (ABDL) spectra. It is a collection of insights discovered over time written into some cohesive format. It will be gradually updated and expanded over time as motivation and expressiveness strike, a live and continually evolving document.
 
 I delve into various fields of knowledge to achieve some kind of broad metaphysical understanding of what it means to be ABDL. This is done for the sheer enjoyment of it—I consider it a hobby, although I will note my academic background in applied science, applied psychology and applied philosophy. You could say I'm well into the application of knowledge, particularly as it relates to human experience and existence. "Wisdom" might be a word for it. I just so happen to have a penchant for ABDL not merely from my being ABDL, but also because it is often maligned and misunderstood, as well as an underexplored topic of the human condition. 
 
 On the whole, this document is simply an interdisciplinary view of ABDL, observing it from different angles and vantage points. As such, it sits somewhere between forms of writing; an eclectic and integrative exposé, an expressive metamodernist piece of work, deeply personal but also rationally objective. Take it for what it is.
 
-The "Further Reading" items at the end are not strictly references and sources, rather pieces of inspiration that have gone into writing this document. Their information is scattered throughout. I have also included some explanatory notes with references-in-text that detract from the flow of the article, but were nonetheless curious bits of information and context that I found worthwhile to share.
+The "Further Reading" items at the end are not strictly references and sources, rather pieces of inspiration that have gone into writing this document. Their information is scattered throughout. I have also included some Explanatory Notes with references-in-text that detract from the flow of the article, but were nonetheless curious bits of information and context that I found worthwhile to share.
 
 You are welcome to reach out with any questions, comments, feedback, and critique, or to seek clarification. I love to discuss ideas, traverse deep concepts, and discover adventurous trails of knowledge to hike. 
 
