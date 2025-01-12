@@ -25,8 +25,8 @@ Kindredly,
 ABDL can be understood as a complex response to alienation.
 
 Alienation is a psychological and emotional phenomenon rooted in a “problematic separation between subject and object.” It occurs when there is a separation between two things that inherently belong together. In the context we're interested in here: 
-•  The subject refers to the Self, typically an individual, e.g. Oneself. 
-•  The object can be a thing, another person, or even oneself in some sense, e.g. Diaper, Parent, Friend, Teacher, Toy, or even Media. 
+* The subject refers to the Self, typically an individual, e.g. Oneself. 
+* The object can be a thing, another person, or even oneself in some sense, e.g. Diaper, Parent, Friend, Teacher, Toy, or even Media. 
 
 There is always a relation between subject and object. This relation becomes problematic when there is a disruption to the natural connection between subject and object, generally instituted by another person or other external power. The outcome is that the subject (Oneself) becomes alienated from the object of our desire.
 
@@ -35,17 +35,17 @@ Not every kind of separation is alienating; for example, if we are allowed to na
 Childhood is full of these moments of frustrating problematic separation—traumas, losses, or unmet needs that leave lasting marks on our psyche. We tend to employ defence mechanisms to alleviate our discomfort of this alienation, which are useful short-term, but becoming outmoded as we mature, taking on a non-normative set of expression if the frustration is left unresolved too long.
 
 Before continuing on, it is worth noting that alienation does not mean hopelessness or despair. As we'll discover, it instead creates space for:
-•  Authentic Connection — relationships based on mutual recognition of lack, rather than the expectation of completeness, can be more genuine and meaningful.
-•  Solidarity — recognizing that alienation is a universal condition can foster empathy and solidarity, rather than isolation or competition. 
-•  Creativity and Growth — the awareness of lack drives individuals to create, innovate, and explore new possibilities.
+* Authentic Connection — relationships based on mutual recognition of lack, rather than the expectation of completeness, can be more genuine and meaningful.
+* Solidarity — recognizing that alienation is a universal condition can foster empathy and solidarity, rather than isolation or competition.
+* Creativity and Growth — the awareness of lack drives individuals to create, innovate, and explore new possibilities.
 
 ***
 ### Childhood Frustrations as Roots of ABDL <br/>
 No one escapes childhood without some frustrations. For some, these unresolved moments lead to the development of ABDL. Some examples include, but are not limited to: 
-•  Being rushed through toilet training, leading to a loss of comfort or security. 
-•  Having a favourite toy taken away, causing grief. 
-•  Experiencing abuse or betrayal, breaking trust. 
-•  Being told to “grow up” or denied something deeply desired, repressing intrinsic needs. 
+* Being rushed through toilet training, leading to a loss of comfort or security.
+* Having a favourite toy taken away, causing grief.
+* Experiencing abuse or betrayal, breaking trust.
+* Being told to “grow up” or denied something deeply desired, repressing intrinsic needs. 
 
 Each of these scenarios represents a “problematic separation” where the child is alienated from something they emotionally or developmentally needed and are steeped in shame as the control emotion [note 1]. Over time, these frustrations and shame, if unresolved, carry into adulthood and manifest in different ways. This includes ABDL and the thoughts, feelings and behaviours that constellate around it.
 
@@ -64,9 +64,9 @@ ABDL often takes on a fetishistic quality because it revolves around an obsessio
 Here’s where the concept of entelechy comes in. Entelechy is about fulfilling one’s potential and achieving a more wholesome sense of self-realisation. This is distinct from self-actualisation, which attempts to find transcendent wholeness in one's being. However, 'wholeness' or 'becoming whole' is a misnomer [note 3]. What remains is for us to embrace our alienation, to delve into our childhood frustrations and problematic separations, to resolve the grief of our loss, and come to an elevated position of self-understanding through acknowledging, assessing and accepting—"realising"—exactly what has happened to our Self. 
 
 ABDL, therefore, while rooted in alienation and grief, also serves a transformative function. It provides a means to: 
-•  Safely revisit the settle the frustrations of childhood. 
-•  Reclaim agency over personal development and begin the journey toward Self-mastery [note 4]. 
-•  Integrate fragmented parts of the Self to form a more cohesive version of the Self.
+* Safely revisit the settle the frustrations of childhood.
+* Reclaim agency over personal development and begin the journey toward Self-mastery [note 4].
+* Integrate fragmented parts of the Self to form a more cohesive version of the Self.
 
 Far from being merely a response to alienation and grief, ABDL can be utilised as a tool for immense personal growth. By engaging with these behaviours, individuals can move toward self-acceptance, authenticity, and emotional integration. It allows for a “do-over,” giving space to develop at one’s own pace and in a way that feels congruent with their inner needs. 
 
