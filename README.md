@@ -17,9 +17,8 @@ Lastly, if nothing else, I hope reading what follows brings you some understandi
 
 Kindredly, 
 
-~~  Lukie B. 🐻‍❄️
+~~  Lukie B. 🐻‍❄️  [kid.lukie.wtf](https://bsky.app/profile/kid.lukie.wtf)
 
-https://bsky.app/profile/kid.lukie.wtf
 
 ***
 ### ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
@@ -126,7 +125,7 @@ However, I will leave you with some hopeful motivation: it is through challenge 
 4.  Self-mastery is about Shame as an emotion. So is Toilet Training, and playing with a toy we're "too old" or "not the right gender" for, as is the abuse we may have experienced, or the fact we have unmet needs from inadequate parenting. Childhood is the most formative time in our lives where we're learning our bodies, our roles, and society's expectations... it brings up a wealth of new and challenging emotions and shape our adult personality. Our infantile fantasies are now over and we have our major responsibilities and expectations to meet. Failing this process is also shameful. Irrespective of passing or failing other's expectations, we're hit with shame either way. The shame of ABDLness, therefore, is the shame of failing to meeting Other's expectations. This is why we must emancipate ourselves from shame. This can be achieved by directing the our own Self-mastery process, the process that stalled for us when we were a Child. 
 
 ***
-### FURTHER READING
+### FURTHER READING </br>
 Bradshaw, J. (1988). "Healing The Shame That Binds You", Health Communications, Inc.
 
 Bradshaw, J. (1994). "Homecoming: Reclaiming and Healing Your Inner Child", Bantam Books.
