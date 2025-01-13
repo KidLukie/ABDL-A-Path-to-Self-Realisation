@@ -76,7 +76,7 @@ ABDL may begin as a response to pain and alienation, but it has the potential to
 
 This does not imply something forced (we do not need that childhood re-trigger). Ideally, we'd engage with the Self, others, and activities in a naturalistic way that is open to experiences and opportunities as they present and unfold, with deep curiosity, and a willingness to defy instituted systems that keep us repressed. ABDL offers the exact right kind of childlike wonder, idealism, and social rebellion requisite to our Self-mastery and emancipation. 
 
-In this sense, ABDL is both a response to alienation and an entelechy; a way to fulfil the deepest human desire to create meaning from loss and move forward toward Self-realisation. To engage with ABDL is to explore our unlimited potentialities; an aesthetical journey into the abyssal plains of the Self, and resurface profoundly new perspectives about who we truly are as a person.
+In this sense, ABDL is both a response to alienation and an entelechy; a way to fulfil the deepest human desire to create meaning from loss and move forward toward Self-realisation. To engage with ABDL is to explore our unlimited potentialities; an aesthetical journey into the abyssal plains of the Self, and resurface with profoundly new perspectives about who we truly are as a person.
 
 ***
 ### ABDL Identity Erotics <br/>
