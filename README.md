@@ -22,7 +22,7 @@ Kindredly,
 
 ***
 ### INTRODUCTION <br/>
-We all feel the void whether we acknowledge it or not. It's that deeply rooted sense that we are incomplete, not whole, something is amiss about ourselves, or there is simply "something wrong" that we cannot articulate. It is a feeling of existential malaise in knowing that, on some profound yet largely inaccessible level, perfection is unobtainable. It's what drives our behaviours, our desires, and incurs our motivation to act in specific ways to minimise the discomfort of knowing that, irrespective of our awareness, we will never quite achieve exactly what we want, nor ever really have our needs fully met. It's the void of incompleteness that's *always* going to be there no matter what we do to try to fill it.
+We all feel the void whether we acknowledge it or not. It's that deeply rooted sense that we are incomplete, not whole, something is amiss about ourselves, or there is simply "something wrong" that we cannot articulate. It is a feeling of existential malaise in knowing that, on some profound yet largely inaccessible level, perfection is unobtainable. It's what drives our behaviours, our desires, and incurs our motivation to act in specific ways to minimise the discomfort of knowing that, irrespective of our awareness, we will never quite achieve exactly what we want, nor ever really have our needs fully met. It's the void of incompleteness that's *always* going to be there no matter what we do to try to fill it. It's the sometimes overwhelming hunch that, despite all the love we experience and connections we have, we ultimately feel alienated at the basal levels of our sense of Self.
 
 Welcome to your subjective 'lack'. [note 1]
 
