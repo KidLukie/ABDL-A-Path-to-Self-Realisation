@@ -21,6 +21,27 @@ Kindredly,
 
 
 ***
+INTRODUCTION <br/>
+We all feel the void whether we acknowledge it or not. It's that deeply rooted sense that we are incomplete, not whole, something is amiss about ourselves, or there is simply "something wrong" that we cannot articulate. It is a feeling of existential malaise in knowing that, on some profound yet largely inaccessible level, perfection is unobtainable. It's what drives our behaviours, our desires, and incurs our motivation to act in specific ways to minimise the discomfort of knowing we will never quite achieve exactly want, nor quite specifically ever have our needs fully met. It's the void that's *always* going to be there no matter what we do to try to fill it.
+
+Welcome to your subjective 'lack'. [note 1]
+
+Given the nature of lack, it's either gonna drive us to act and continually strive to fulfil it, allowing us to participate in and really live life, or we succumb to it and end up depressed, and possibly prematurely dead ☠️. I figure that's why it's important to lean into ABDL and make the most of it, make it work to better our lives, and not be shamed about it. You can't cut away the inherent-ness of it. ABDL is intrinsic, and we'd probably feel the void even more harshly if we didn't have ABDL as a defensive buffer.
+
+This leans into that curious question of "What is going on in society that makes ABDL not just a thing that exists, but in fact proliferate and grow in numbers?" I think part of it is just many of us these days simply don't have fulfilling childhoods and the incident rate is increasing on that. That's not just a function of population growth, but also social factors like untreated intergenerational trauma, twisted and unhealthy societal values, lifestyles and materialism, and over-emphasis placed upon commodification that severely erode the more intrinsically fulfilling existential and spiritual dimensions of being human. Thanks Capitalism!
+
+The form of our lack these days is heavily influenced by the socioeconomic system we're in. ABDL can be viewed as a response to that system, attempting to balance out the repression and exploitation of the system we all experience just by simply existing within it. Capitalism tries to sell us on the idea that we can be wholly satisfied and fulfilled by purchasing goods ("Just got to have that new Diaper before everyone else!") and services (Mommy scams!) that promise to complete us, but will always fail in delivering on that promise because our lack is intrinsic and subjective, and cannot be patched by extrinsic, objective commodities.
+
+In a manner of speaking, ABDL has us lean further into our own commodification by being so intensely materialist about the products we have to buy (Diapers, Oneseis, Toys, etc.) to mask our lack. Whereas, my focus is often on the opposite, meaning-making qualities that ABDL offers that can emancipate ourselves from these systems of subjugation, repression, oppression, commodification, exploitation and burnout.
+
+There's a delightful irony in ABDL being a hypermaterialist culture whilst simultaneously liberating us from the hypermaterialist culture that incepted it in the first place. But that's only true provided ABDL is used, proactively, toward emancipatory ends and we do not fully give ourselves over to the capitalist materialism and sequent commodification of ourselves. Social media makes us very guilty of this, myself especially included.
+
+Essentially, ABDL is ideally positioned as a means to continually explore and heal your Self, not as a means to superficially mask your sense of deficiency and defectiveness. However, this requires deep acknowledgement of our lack and how it percolates upward into our everyday lives. This is why I'm into the meaning-making potential of ABDL because it is a way to grasp and understand our own lack and transmute it into something more empowering and emancipatory.
+
+What follows below is hopefully a useful deconstruction and synthesis of ABDL leading toward a conceptual model for Meaning-Making Praxis that you can incoporate into your everyday ABDL playtime. By this, I mean changing how we *relate to ABDL* as a practice; not engaging with ABDL merely simply as a comfort or sexual release, but a tool to be employed for proactive and enriching Self-development across all dimension of our lives.
+
+
+***
 ### ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
 ABDL can be understood as a complex response to alienation.
 
@@ -35,7 +56,7 @@ Not every kind of separation is alienating; for example, if we are allowed to na
 Childhood is full of these moments of frustrating problematic separation—traumas, losses, or unmet needs that leave lasting marks on our psyche. We tend to employ defence mechanisms to alleviate our discomfort of this alienation, which are useful short-term, but becoming outmoded as we mature, taking on a non-normative set of expression if the frustration is left unresolved too long.
 
 Before continuing on, it is worth noting that alienation does not mean hopelessness or despair. As we'll discover, it instead creates space for:
-* Authentic Connection — relationships based on mutual recognition of lack [note 1], rather than the expectation of completeness, can be more genuine and meaningful.
+* Authentic Connection — relationships based on mutual recognition of lack, rather than the expectation of completeness, can be more genuine and meaningful.
 * Solidarity — recognizing that alienation is a universal condition can foster empathy and solidarity, rather than isolation or competition.
 * Creativity and Growth — the awareness of lack drives individuals to create, innovate, and explore new possibilities.
 
@@ -76,7 +97,7 @@ ABDL may begin as a response to pain and alienation, but it has the potential to
 
 This does not imply something forced (we do not need that childhood re-trigger). Ideally, we'd engage with the Self, others, and activities in a naturalistic way that is open to experiences and opportunities as they present and unfold, with deep curiosity, and a willingness to defy instituted systems that keep us repressed. ABDL offers the exact right kind of childlike wonder, idealism, and social rebellion requisite to our Self-mastery and emancipation. 
 
-In this sense, ABDL is both a response to alienation and an entelechy; a way to fulfil the deepest human desire to create meaning from loss and move forward toward Self-realisation. To engage with ABDL is to explore our unlimited potentialities; an aesthetical journey into the abyssal plains of the Self, and resurface with profoundly new perspectives about who we truly are as a person.
+In this sense, ABDL is both a response to alienation and an entelechy; a way to fulfil the deepest human desire to create meaning from loss and move forward toward Self-realisation. To engage with ABDL is to explore our unlimited potentialities; an aesthetical and spiritual journey into the abyssal plains of the Self, and resurface with profoundly new perspectives about who we truly are as a person.
 
 ***
 ### ABDL Identity Erotics <br/>
