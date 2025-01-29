@@ -13,7 +13,7 @@ The "Further Reading" items at the end are not strictly references and sources, 
 
 You are welcome to reach out with any questions, comments, feedback, and critique, or to seek clarification. I love to discuss ideas, traverse deep concepts, and discover adventurous trails of knowledge to hike. 
 
-Lastly, if nothing else, I hope reading what follows brings you some understanding and comfort in your ABDL life. 
+Lastly, if nothing else, I hope reading what follows brings you some understanding and comfort in your ABDL life. I'm glad you're here. :)
 
 Kindredly, 
 
