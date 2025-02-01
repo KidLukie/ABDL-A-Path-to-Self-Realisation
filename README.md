@@ -7,9 +7,9 @@ This document is not intended to be an academic, nor claims to be. It is also no
 
 I delve into various fields of knowledge to achieve some kind of broad metaphysical understanding of what it means to be ABDL. This is done for the sheer enjoyment of it—I consider it a hobby, although I will note my academic background in applied science, applied psychology and applied philosophy. You could say I'm well into the application of knowledge, particularly as it relates to human experience and existence. "Wisdom" might be a word for it. I just so happen to have a penchant for ABDL not merely from my being ABDL, but also because it is often maligned and misunderstood, as well as an underexplored topic of the human condition. 
 
-On the whole, this document is simply an interdisciplinary view of ABDL, observing it from different angles and vantage points. As such, it sits somewhere between forms of writing; an eclectic and integrative exposé, an expressive metamodernist piece of work, deeply personal but also rationally objective. Take it for what it is.
+On the whole, this document is simply an interdisciplinary view of ABDL, observing it from different angles and vantage points. New parts are added as inspiration strikes, so there may be some incongruency between parts. It's perhaps best to simultaneously take the document as a whole, whilst remaining mindful each section is its own distinct part. As such, it sits somewhere between forms of writing; an eclectic and integrative exposé, an expressive metamodernist piece of work, deeply personal but also rationally objective. Take it for what it is.
 
-The "Further Reading" items at the end are not strictly references and sources, rather pieces of inspiration that have gone into writing this document. Their information is scattered throughout. I have also included some Explanatory Notes with references-in-text that detract from the flow of the article, but were nonetheless curious bits of information and context that I found worthwhile to share.
+The "Further Reading and References" items at the end are not strictly references mentioned in-text, although some will be. Rather they are pieces of inspiration that have gone into writing this document. Their information is scattered throughout. I have also included some Explanatory Notes with references-in-text that detract from the flow of the article, but were nonetheless curious bits of information and context that I found worthwhile to share.
 
 You are welcome to reach out with any questions, comments, feedback, and critique, or to seek clarification. I love to discuss ideas, traverse deep concepts, and discover adventurous trails of knowledge to hike. 
 
@@ -149,6 +149,25 @@ Since neosexuality is shaped not just by biological drives but by social constru
 Given that neosexuality is increasingly shaped by individual control, Self-improvement, and personal fulfillment rather than by societal norms, it therefore represents a private and Self-determined experience, allowing people to explore their desires in ways that are tailored to their personal needs. Many ABDL individuals describe their fetish as a form of Self-care, providing stress relief and an escape from adult responsibilities, reflecting the "therapeutic" aspect of neosexuality, where pleasure is intertwined with wholistic healing, recouperation, and personal well-being and vitality. The idea that people should optimise their sex lives by customising their experiences fits well with ABDL, as it is a highly individualised and Self-curated practice that meets specific psychological and Self-realisation needs.
 
 ABDL is a manifestation of the neosexual revolution, where sexuality has been deconstructed, commodified, and reassembled into new forms. Like many other contemporary fetishes, ABDL reflects the detachment of sexuality from reproduction, the rise of prosthetic and non-genital sexuality, the role of commerce in shaping desire, and the increasing fluidity of gender and identity. Rather than being an anomaly, ABDL is a logical extension of modern sexual culture, in which personal desires, psychological comfort, and fetishistic play are embraced as valid aspects of sexual and emotional life. The neosexual revolution, in breaking down traditional sexuality, has made room for such identities to exist and even flourish, leading toward an enhanced coherence of individuality, personality, and community. 
+
+***
+### ABDL is Social Rebellion
+
+ABDL is social rebellion. Shirking the de facto norms of society, much like how being Ace, Autistic or ADHD is unconventional based on an arbitrary standard measure of being 'typical'. I reckon ABDL at its core is deeply rooted in Self-shame.
+
+Shame is quite a powerful and universal human factor. Kids are shamed out of Diapers to conform to society's standards and become more independent or "Adult."
+
+And even more shameful is wearing Diapers as an adult, as that implies some kind of deficiency or weakness of the Self.
+
+Hence why choosing to wear Diapers is social rebellion; it's actively saying, "I will not conform, and I am stronger within myself for choosing this."
+
+This points to why "potty rebel" is such a popular ABDL aesthetic. Or why wearing Diapers 24/7 is a lifestyle choice.
+
+Or why there is such a supportive community around wearing Diapers, and it increasingly becoming one of the most visible and largest sub-cultures. It's a group of people who, for whatever reason, are empowered by the idea of choosing *not* to be disempowered by society.
+
+ABDL is an opportunity to become a social rebel and authenticate one's Self. For some, it may be the only life item they can confidently say they made their own decision on. That we rally around an idea of non-conformity makes ABDL a truly valid and useful interest for the disempowered, the alternative, and those who feel maligned in a 'de facto-based' society; a society that is gradually becoming reductionist toward Selfhood in ways that invalidate the individual.
+
+That is worth rebelling against.
 
 ***
 ### EXPLANATORY NOTES <br/>
