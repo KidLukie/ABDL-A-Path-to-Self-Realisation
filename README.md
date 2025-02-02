@@ -3,55 +3,49 @@
 
 ***
 ### PREFACE <br/>
-This document is not intended to be an academic, nor claims to be. It is also not an essay, a reflection, nor any kind of article in any classical sense. I am certainly not claiming to be an expert in any field, nor do I intend for this to be a rigorous analysis of Adult Baby / Diaper Lover (ABDL) spectra. It is a collection of insights discovered over time written into some cohesive format. It will be gradually updated and expanded over time as motivation and expressiveness strike, a live and continually evolving document.
+This document is neither an academic paper nor a formal essay, reflection, or article. I do not claim expertise in any field, nor is this a rigorous analysis of the Adult Baby/Diaper Lover (ABDL) spectrum. Instead, it is a collection of insights gathered over time, structured into a cohesive format. This is a living document, continually updated as inspiration strikes.
 
-I delve into various fields of knowledge to achieve some kind of broad metaphysical understanding of what it means to be ABDL. This is done for the sheer enjoyment of it—I consider it a hobby, although I will note my academic background in applied science, applied psychology and applied philosophy. You could say I'm well into the application of knowledge, particularly as it relates to human experience and existence. "Wisdom" might be a word for it. I just so happen to have a penchant for ABDL not merely from my being ABDL, making it an [emic](https://en.wikipedia.org/wiki/Emic_and_etic) piece of writing, but also because it is often maligned and misunderstood, as well as an underexplored topic of the human condition. 
+I explore various disciplines to understand ABDL from a broad metaphysical perspective. This pursuit is a personal passion, supported by my background in applied science, psychology, and philosophy. While this work is deeply personal, it also aims to be rational and objective. ABDL is often misunderstood and maligned, yet it provides a fascinating lens to examine the human condition.
 
-On the whole, this document is simply an interdisciplinary view of ABDL, observing it from different angles and vantage points. New parts are added as inspiration strikes, so there may be some incongruency between parts. It's perhaps best to simultaneously take the document as a whole, whilst remaining mindful each section is largely its own standalone part, however I would encourage that you read it sequentially as presented. As such, it sits somewhere between forms of writing; an eclectic and integrative exposé, an expressive metamodernist piece of work, deeply personal but also rationally objective. Take it for what it is.
+This document offers an interdisciplinary view of ABDL, observing it from multiple angles, including psychological, sociological, philosophical, and existential perspectives. New sections are added organically, meaning some parts may be more refined than others. Though sections stand alone, reading sequentially is encouraged. The writing blends eclecticism and integration—part exposé, part metamodernist expression.
 
-The "Further Reading and References" items at the end are not strictly references mentioned in-text, although some will be. Rather they are pieces of inspiration that have gone into writing this document. Their information is scattered throughout. I have also included some Explanatory Notes with references-in-text that detract from the flow of the article, but were nonetheless curious bits of information and context that I found worthwhile to share.
+At the end, you’ll find a "Further Reading and References" section, which includes both in-text references and broader sources of inspiration. Additionally, explanatory notes provide context for ideas that might otherwise disrupt the flow.
 
-You are welcome to reach out with any questions, comments, feedback, and critique, or to seek clarification. I love to discuss ideas, traverse deep concepts, and discover adventurous trails of knowledge to hike. 
+This document also acknowledges that while ABDL is deeply personal, it intersects with broader cultural and societal forces. The intention is not only to provide comfort and validation but also to cultivate critical thinking about the role of identity, desire, and self-exploration.
 
-Lastly, if nothing else, I hope reading what follows brings you some understanding and comfort in your ABDL life. I'm glad you're here. :)
+I welcome questions, feedback, and discussion. If nothing else, I hope this document brings understanding and comfort to your ABDL experience. I'm glad you're here. :)
 
-Kindredly, 
+Kindredly,
 
-~~  Lukie B. 🐻‍❄️  [kid.lukie.wtf](https://bsky.app/profile/kid.lukie.wtf)
+~  Lukie B. 🐻‍❄️  [kid.lukie.wtf](https://bsky.app/profile/kid.lukie.wtf)
 
 
 ***
 ### INTRODUCTION <br/>
-We all feel the void whether we acknowledge it or not. It's that deeply rooted sense that we are incomplete, not whole, something is amiss about ourselves, or there is simply "something wrong" that we cannot articulate. It is a feeling of existential malaise in knowing that, on some profound yet largely inaccessible level, perfection is unobtainable. It's what drives our behaviours, our desires, and incurs our motivation to act in specific ways in order to scontinually strive for our goals, or to minimise the discomfort of knowing that, irrespective of our awareness, we will never quite achieve exactly what we want, nor ever really have our needs fully met. It's the void of incompleteness that's *always* going to be there no matter what we do to try to fill it. It's the sometimes overwhelming hunch that, despite all the love we experience and connections we have, we ultimately feel alienated at the basal levels of our sense of Self.
+We all experience a sense of lack—a feeling that something is missing, incomplete, or wrong within us. This existential void drives our behaviors and desires, motivating us to strive for fulfillment. Yet, no matter what we achieve, that sense of incompleteness lingers.
+
+This feeling is not a flaw, but rather an essential part of being human. The awareness of lack compels us to seek connection, meaning, and self-expression. It is the engine behind human creativity and the foundation of identity formation.
 
 Welcome to your subjective 'lack'. [note 1]
 
-Given the nature of lack, it's either gonna drive us to act and continually strive to fulfil it, allowing us to full participate in life, or we succumb to it and end up depressed, and possibly prematurely deceased. I figure that's why it's important to lean into ABDL and make the most of it, make it work to better our lives, and not be ashamed. You cannot cut out the inherent-ness of it; ABDL is intrinsic, and we'd probably feel the void even more harshly if we didn't have ABDL as a defensive buffer.
+This lack either propels us forward or leaves us in despair. Leaning into ABDL can be a way to engage with it constructively rather than letting it consume us. ABDL is intrinsic; rejecting it might intensify the void rather than alleviate it.
 
-This leans into that curious question of "What is going on in society that makes ABDL not just a thing that exists, but in fact proliferate and grow in numbers?" I think part of it is just many of us these days simply don't have fulfilling childhoods and the incident rate is increasing on that. That's not just a function of population growth, but also social factors like untreated intergenerational trauma, twisted and unhealthy societal values, lifestyles and materialism, and over-emphasis placed upon commodification that severely erode the more intrinsically fulfilling existential, aesthetic, and spiritual dimensions of being human. Thanks Capitalism!
+A key question arises: What societal conditions contribute to ABDL’s existence and growth? Many of us lacked fulfilling childhoods, and this trend is increasing. Beyond population growth, factors like intergenerational trauma, materialism, the commodification of human experience, and the pressure to conform to rigid adult identities erode deeper existential, aesthetic, and spiritual fulfillment. The constant acceleration of life, driven by economic systems that demand productivity over well-being, forces people to suppress their need for care, play, and emotional security.
 
-The form of our lack these days is heavily influenced by the socioeconomic system we're in. ABDL can be viewed as a response to that system, attempting to balance out the repression and exploitation of the system we all experience just by simply existing within it. Capitalism tries to sell us on the idea that we can be wholly satisfied and fulfilled by purchasing goods ("Just got to have that new Diaper before everyone else!") and services (Mommy scams!) that promise to complete us, but will always fail in delivering on that promise because our lack is intrinsic and subjective, and cannot be patched by extrinsic, objective commodities.
+Capitalism fuels this issue, selling the illusion that fulfillment can be purchased—whether through diapers, onesies, or toys. However, because our lack is intrinsic and subjective, external commodities can never truly fill it. Paradoxically, ABDL is both a product of hyper-materialist culture and a potential escape from it. If engaged with meaningfully, ABDL can serve as a tool for self-exploration rather than a mere mask for deficiency.
 
-In a manner of speaking, ABDL has us lean further into our own commodification by being so intensely materialist about the products we have to buy (Diapers, Oneseis, Toys, etc.) to mask our lack. Whereas, my focus is often on the opposite, meaning-making qualities that ABDL offers that can emancipate ourselves from these systems of subjugation, repression, oppression, commodification, exploitation and burnout.
-
-There's a delightful irony in ABDL being a hypermaterialist culture whilst simultaneously liberating us from the hypermaterialist culture that incepted it in the first place. But that's only true provided ABDL is used, proactively, toward emancipatory ends and we do not fully give ourselves over to the capitalist materialism and sequent commodification of ourselves. Social media makes us very guilty of this, myself especially included.
-
-Essentially, ABDL is ideally positioned as a means to continually explore and heal your Self, not as a means to superficially mask your sense of deficiency and defectiveness. However, this requires deep acknowledgement of our lack and how it percolates upward into our everyday lives. This is why I'm into the meaning-making potential of ABDL because it is a way to grasp and understand our own lack and transmute it into something more empowering and emancipatory.
-
-What follows below is hopefully a useful deconstruction and synthesis of ABDL leading toward a conceptual model for Meaning-Making Praxis that you can incoporate into your everyday ABDL playtime. By this, I mean changing how we *relate to ABDL* as a practice; not engaging with ABDL merely simply as a comfort or sexual release, but a tool to be employed for proactive and enriching Self-development across all dimension of our lives.
+What follows is a synthesis of ABDL as a conceptual model for Meaning-Making Praxis—a way to reframe ABDL as a practice for self-development, rather than solely comfort or sexual release, transmuting it into something more empowering and emancipatory that enriches our everyday lives across all dimensions of our human experience.
 
 
 ***
 ### ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
-ABDL can be understood as a complex response to alienation.
+ABDL can be understood as a response to alienation, which occurs when an essential connection—between self and caregiver, self and security, self and authenticity—is severed. Not all separations are alienating; natural developmental progressions feel different from forced, distressing losses.
 
 Alienation is a psychological and emotional phenomenon rooted in a “problematic separation between subject and object.” It occurs when there is a separation between two things that inherently belong together. In the context we're interested in here: 
 * The subject refers to the Self, typically an individual, e.g. Oneself. 
 * The object can be a thing, another person, or even oneself in some sense, e.g. Diaper, Parent, Friend, Teacher, Toy, or even Media. 
 
 There is always a relation between subject and object. This relation becomes problematic when there is a disruption to the natural connection between subject and object, generally instituted by another person or other external power. The outcome is that the subject (Oneself) becomes alienated from the object of our desire.
-
-Not every kind of separation is alienating; for example, if we are allowed to naturally ‘grow out’ of something and it's no longer of any especial interest. But when the separation causes distress and remains unresolved, it instils alienation via frustration, a sense of being stuck and unable to make progress toward, or otherwise unable to access the object of our desire.
 
 Childhood is full of these moments of frustrating problematic separation—traumas, losses, or unmet needs that leave lasting marks on our psyche. We tend to employ defence mechanisms to alleviate our discomfort of this alienation, which are useful short-term, but becoming outmoded as we mature, taking on a non-normative set of expression if the frustration is left unresolved too long.
 
