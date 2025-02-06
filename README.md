@@ -24,12 +24,12 @@ Kindredly,
 
 # CONTENTS
 1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
-2. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-3. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
-4. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
-5. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
-6. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
-7. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
+2. [A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
+3. [Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#identity-erotics-)
+4. [Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#meaning-making-praxis-)
+5. [Neosexuality: The Dispersion of Sexual Fragments](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#neosexuality-the-dispersion-of-sexual-fragments)
+6. [Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#social-rebellion)
+7. [Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#transpersonal-ecopsychology-regressing-or-reconnecting)
 8. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
 9. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
 
