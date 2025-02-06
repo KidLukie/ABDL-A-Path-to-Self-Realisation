@@ -25,7 +25,7 @@ Kindredly,
 # CONTENTS
 1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
 2. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-3. [ABDL as Entelechy](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+3. [ABDL as Entelechy](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-as-entelechy-)
 4. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
 5. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
 6. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
