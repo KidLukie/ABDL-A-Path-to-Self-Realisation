@@ -25,14 +25,13 @@ Kindredly,
 # CONTENTS
 1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
 2. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-3. [ABDL as Entelechy](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-as-entelechy-)
-4. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
-5. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
-6. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
-7. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
-8. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
-9. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
-10. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
+3. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+4. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
+5. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
+6. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
+7. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
+8. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
+9. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
 
 # INTRODUCTION <br/>
 We all experience a sense of lack—a feeling that something is missing, incomplete, or wrong within us. This existential void drives our behaviors and desires, motivating us to strive for fulfillment. Yet, no matter what we achieve, that sense of incompleteness lingers.
@@ -50,7 +49,7 @@ Capitalism fuels this issue, selling the illusion that fulfillment can be purcha
 What follows is a synthesis of ABDL as a conceptual model for Meaning-Making Praxis—a way to reframe ABDL as a practice for self-development, rather than solely comfort or sexual release, transmuting it into something more empowering and emancipatory that enriches our everyday lives across all dimensions of our human experience.
 
 
-# ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
+# A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
 ABDL can be understood as a response to alienation, which occurs when an essential connection—between self and caregiver, self and security, self and authenticity—is severed. Not all separations are alienating; natural developmental progressions feel different from forced, distressing losses. However, no one escapes childhood without some frustrations. For some, these unresolved moments lead to the development of ABDL. Some examples include, but are not limited to: 
 * Being rushed through toilet training, leading to a loss of comfort or security.
 * Having a favourite toy taken away, causing grief.
@@ -72,8 +71,7 @@ In addition, ABDL may function as a means to reintegrate fragmented aspects of i
 
 By reframing ABDL as a valid and meaningful response to alienation, it becomes possible to appreciate its potential for self-reclamation, self-actualization, and the pursuit of personal authenticity. This shift in perspective allows individuals to approach ABDL with intention, using it as a powerful tool for self-exploration and psychological growth.
 
-
-# ABDL as Entelechy <br/>
+## ABDL as Entelechy <br/>
 Here’s where the concept of entelechy comes in. Entelechy is about fulfilling one’s potential and achieving a more wholesome sense of self-realisation. This is distinct from self-actualisation, which attempts to find transcendent wholeness in one's being. However, 'wholeness' or 'becoming whole' is a misnomer [note 5]. What remains is for us to embrace our alienation, to delve into our childhood frustrations and problematic separations, to resolve the grief of our loss, and come to an elevated position of self-understanding through acknowledging, assessing and accepting—"realising"—exactly what has happened to our Self. 
 
 ABDL, therefore, while rooted in alienation and grief, also serves a transformative function. It provides a means to: 
@@ -92,7 +90,7 @@ This does not imply something forced (we do not need that childhood re-trigger).
 In this sense, ABDL is both a response to alienation and an entelechy; a way to fulfil the deepest human desire to create meaning from loss and move forward toward Self-realisation. To engage with ABDL is to explore our unlimited potentialities; an aesthetical and spiritual journey into the abyssal plains of the Self, and resurface with profoundly new perspectives about who we truly are as a person.
 
 
-# ABDL Identity Erotics <br/>
+# Identity Erotics <br/>
 How can one discover and recognise such perspectives within the Self? Looking at ABDL through the lens of "identity erotics" and "sensuous knowledge" can assist with engaging our ABDLness in a more wholistic and empowering way, giving us fresh perspective to think about the Self and its desires.
 
 "Identity Erotics" is about breaking free from rigid ideas of who we're supposed to be. Instead of seeing the Self as fixed or defined by what it's not (e.g. "deviant is not normal"), identity is treated as something dynamic and Self-expressive (e.g. "self-determination is empowering"). When it comes to ABDL, this means seeing it not as something weird or wrong but as personal expression of who we are, shaped by our history, culture, and sensory preferences. ABDL isn't just "random," it's an evolved constellation of experiences and sequent behaviours, cognitions and emotions, an integral thread in the fabric of how we connect with ourselves and with others.
@@ -106,7 +104,7 @@ ABDL, like all aspects of identity and desire, are part of what makes us human; 
 In the context of Alienation and ABDL, Identity Erotics and Sensuous Knowledge opens space for authentic connection to thrive for our Self and Others, where we recognise the lack within all people, leading to our unifying desire to form genuine, warm, and validating connections. It allows us to foster empathy and solidarity for others, and arouses us into Self-compassion and compassion for Others. Through playing in this space, our creativity and growth is encouraged and nurtured, where no matter how you identify on ABDL spectra, there is incentive to create, innovate and explore new, untold possibilities and, ultimately, realise our sublime aesthetical, spiritual Self.
 
 
-# ABDL Meaning-Making Praxis <br/>
+# Meaning-Making Praxis <br/>
 It may be posited at this point that ABDL is, at its core, "Meaning-Making Praxis". Praxis here being a cyclical process of understanding Theory (e.g. a play idea to explore), putting it into Action (enacting said play), Reflexively assessing with a critical mindset upon the outcomes (aftercare; integration of the experience through meaning-making), and then closing the loop by seeking even greater understandings through follow-up Theory. 
 
 ABDL is a wholistic practice that enables the continual adventuring into new domains of Self-enhancement, using your interiority to not just better project your Self externally, but also become a proactive interpreter of your experiences. Constructing your own narrative interpretations based on your individual personal experience—being your own "author"-ity—is what empowers you to infuse meaning and happiness into your life.
@@ -121,15 +119,14 @@ This is Eudaimonic Wellbeing, and it does not come naturally for many people. Ho
 
 3. Eudaimonic (Reflexive) — This concerns Spiritual Meaning-Making, and promotes Existential wellbeing. Upon completing the Experiential event, you may derive a personal meaning from the experience which you further integrate into your sense of Self and, in the process, continue to author the meaningfulness of your life. You may have used your Diaper *because* it helps you master your own Shame. You enjoyed the Dino Nuggies and Apple Juice *because* you have a loving Caregiver in your life, and that is invaluable. You may think to yourself, "I feel great about being ABDL because it provides opportunity to have life-affirming experiences." You've further solidified your relationship with your Self (or Others, or life) and so you can promote your own Existential wellbeing.
 
-From here, having obtained a more robust Self-understanding, you can cycle back to gathering those requisite resources (Theory) to repeat this Self-mastery process [note 5]. You may have discovered you simply love a particular style of headspace a certain Diaper print gives you (Theory), which would be an ideal launchpad to further delve into that aspect of your Self, so you purchase more of that Diaper (Action), use it and author additional narratives about your Self (Reflexivity). Perhaps you observed how secure you felt when your Caregiver provided for you without request (Theory), opening an opportunity for an aftercare conversation that helps elucidate further roleplay scenarios that bring about about that sensation (Action), and so supply life meaning and contentment (Reflexivity). These are just two examples among the infinite many, but hopefully they illustrate the process. 
+From here, having obtained a more robust Self-understanding, you can cycle back to gathering those requisite resources (Theory) to repeat this Self-mastery process. You may have discovered you simply love a particular style of headspace a certain Diaper print gives you (Theory), which would be an ideal launchpad to further delve into that aspect of your Self, so you purchase more of that Diaper (Action), use it and author additional narratives about your Self (Reflexivity). Perhaps you observed how secure you felt when your Caregiver provided for you without request (Theory), opening an opportunity for an aftercare conversation that helps elucidate further roleplay scenarios that bring about about that sensation (Action), and so supply life meaning and contentment (Reflexivity). These are just two examples among the infinite many, but hopefully they illustrate the process. 
 
 Lastly, there is one critical item to keep in mind when undertaking this process: Honesty. If you cannot be honest with yourself and Others about how you feel and what you believe in, you will be misdirected from the very beginning and you will find yourself engaging inauthentically. This will incur Shame. Your formative attempts in your Meaning-Making Praxis may be structured around tackling Shame as the core emotion, which can only occur when you have acknowledged the emotion, and are willing to contend with its temporary discomfort. 
 
 However, I will leave you with some hopeful motivation: it is through challenge that we personally grow and can make sense of our world, and so come to be better "author"-ities within it.
 
 
-# The Dispersion of Sexual Fragments: ABDL as a Neosexuality
-
+# Neosexuality: The Dispersion of Sexual Fragments
 Sexuality has fragmented into countless niche identities and practices, a process called 'the dispersion of sexual fragments' (Sigusch, 1998). Historically, sexuality was viewed through a narrow lens—heterosexual, reproductive, and bound by traditional gender roles. The neosexual revolution dismantled this framework, allowing for the emergence of new sexual identities and expressions. ABDL is an example of how sexuality is no longer confined to genital-focused, orgasm-driven intercourse. Instead, it incorporates regression, role-playing, and non-genital pleasure as legitimate aspects of sexual experience. The act of wearing diapers or engaging in age regression as part of a sexual identity would have been unthinkable in earlier, rigidly defined sexual cultures, but in a world where sexuality has become more modular and fragmented, such practices are seen as another variation in an ever-growing sexual marketplace. Just as BDSM, Pups, and other fetishistic role-play have become mainstream, ABDL represents a highly specific yet increasingly culturally tolerated form of erotic play.
 
 Inasmuch, sexuality has been commodified and normalised through media, technology, and commerce. The increasing availability of niche porn, online forums and social media, and sex toys has made sexual interests that were once private or hidden more publicly visible and marketable. The online presence of ABDL communities, specialised products (adult-sized diapers, pacifiers, baby clothes, etc.), and even ABDL pornography demonstrates how market forces have embraced and sustained the fetish and its communities. Social media, forums and dedicated ABDL dating platforms contribute to the normalisation of ABDL within a niche consumer base, much like other fetish communities. The increasing availability of "fetish gear"—once limited to underground subcultures—shows how capitalism has transformed sexual desire into something that can be bought, sold, and branded (again pointing toward Lacanian 'lack' and the commodificaton of desire), and invites a discussion about the 'prosthetic substitution' of sexual gratification, where sexuality is enhanced or replaced by objects, technology, or role-play.
@@ -143,8 +140,7 @@ Given that neosexuality is increasingly shaped by individual control, Self-impro
 ABDL is a manifestation of the neosexual revolution, where sexuality has been deconstructed, commodified, and reassembled into new forms. Like many other contemporary fetishes, ABDL reflects the detachment of sexuality from reproduction, the rise of prosthetic and non-genital sexuality, the role of commerce in shaping desire, and the increasing fluidity of gender and identity. Rather than being an anomaly, ABDL is a logical extension of modern sexual culture, in which personal desires, psychological comfort, and fetishistic play are embraced as valid aspects of sexual and emotional life. The neosexual revolution, in breaking down traditional sexuality, has made room for such identities to exist and even flourish, leading toward an enhanced coherence of individuality, personality, and community. 
 
 
-# ABDL is Social Rebellion
-
+# Social Rebellion
 ABDL is social rebellion. Shirking the de facto norms of society, much like how being Ace, Autistic or ADHD is unconventional based on an arbitrary standard measure of being 'typical'. I reckon ABDL at its core is deeply rooted in Self-shame.
 
 Shame is quite a powerful and universal human factor. Kids are shamed out of Diapers to conform to society's standards and become more independent or "Adult."
@@ -162,8 +158,8 @@ ABDL is an opportunity to become a social rebel and authenticate one's Self. For
 That is worth rebelling against.
 
 
-# ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?
-ABDL is often framed through psychological and social lenses and rarely examined in the context of transpersonal ecopsychology—a discipline that bridges deep ecology, consciousness studies, and the spiritual dimensions of human experience. At its core, transpersonal ecopsychology argues that the modern human psyche has become fragmented due to its disconnection from nature, leading to a culture dominated by consumption, growth, and self-interest rather than interdependence and harmony. ABDL may be viewed as both a potential symptom of psychological disconnection and as a possible pathway to transpersonal integration and ecological attunement.
+# Transpersonal Ecopsychology: Regressing or Reconnecting?
+ABDL can be framed through transpersonal ecopsychology—a discipline that bridges deep ecology, consciousness studies, and the spiritual dimensions of human experience. At its core, transpersonal ecopsychology argues that the modern human psyche has become fragmented due to its disconnection from nature, leading to a culture dominated by consumption, growth, and self-interest rather than interdependence and harmony. ABDL may be viewed as both a potential symptom of psychological disconnection and as a possible pathway to transpersonal integration and ecological attunement.
 
 ## Ecopsychology and the Consumptive Mode of Being
 Maiteny (2015) describes modern civilisation as suffering from an “ecosystemic holocaust” driven by the unchecked human desire for growth and self-interest. This worldview, which seeks to consume and assimilate the planet to fulfill human needs, results in ecological destruction and deep psychological alienation. Transpersonal ecopsychology posits that this consumption-based mode of being is not just external (e.g. material consumption, impact on landfill) but also internal, shaping psychological and spiritual development.
