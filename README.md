@@ -25,7 +25,7 @@ Kindredly,
 # CONTENTS
 1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
 2. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-3. [ABDL as Entelechy: A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+3. [ABDL as Entelechy](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
 4. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
 5. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
 6. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
@@ -73,7 +73,7 @@ In addition, ABDL may function as a means to reintegrate fragmented aspects of i
 By reframing ABDL as a valid and meaningful response to alienation, it becomes possible to appreciate its potential for self-reclamation, self-actualization, and the pursuit of personal authenticity. This shift in perspective allows individuals to approach ABDL with intention, using it as a powerful tool for self-exploration and psychological growth.
 
 
-# ABDL as Entelechy: A Path to Self-Realisation <br/>
+# ABDL as Entelechy <br/>
 Here’s where the concept of entelechy comes in. Entelechy is about fulfilling one’s potential and achieving a more wholesome sense of self-realisation. This is distinct from self-actualisation, which attempts to find transcendent wholeness in one's being. However, 'wholeness' or 'becoming whole' is a misnomer [note 5]. What remains is for us to embrace our alienation, to delve into our childhood frustrations and problematic separations, to resolve the grief of our loss, and come to an elevated position of self-understanding through acknowledging, assessing and accepting—"realising"—exactly what has happened to our Self. 
 
 ABDL, therefore, while rooted in alienation and grief, also serves a transformative function. It provides a means to: 
