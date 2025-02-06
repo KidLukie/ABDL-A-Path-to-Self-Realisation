@@ -38,6 +38,18 @@ Capitalism fuels this issue, selling the illusion that fulfillment can be purcha
 What follows is a synthesis of ABDL as a conceptual model for Meaning-Making Praxis—a way to reframe ABDL as a practice for self-development, rather than solely comfort or sexual release, transmuting it into something more empowering and emancipatory that enriches our everyday lives across all dimensions of our human experience.
 
 
+# CONTENTS
+1. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
+2. [ABDL as Entelechy: A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+3. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+4. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
+5. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
+6. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
+7. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
+8. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
+9. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
+
+
 # ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
 ABDL can be understood as a response to alienation, which occurs when an essential connection—between self and caregiver, self and security, self and authenticity—is severed. Not all separations are alienating; natural developmental progressions feel different from forced, distressing losses. However, no one escapes childhood without some frustrations. For some, these unresolved moments lead to the development of ABDL. Some examples include, but are not limited to: 
 * Being rushed through toilet training, leading to a loss of comfort or security.
