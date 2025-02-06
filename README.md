@@ -22,6 +22,18 @@ Kindredly,
 ~  Lukie B. 🐻‍❄️  [kid.lukie.wtf](https://bsky.app/profile/kid.lukie.wtf)
 
 
+# CONTENTS
+1. [Introduction](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#introduction-)
+2. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
+3. [ABDL as Entelechy: A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+4. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
+5. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
+6. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
+7. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
+8. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
+9. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
+10. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
+
 # INTRODUCTION <br/>
 We all experience a sense of lack—a feeling that something is missing, incomplete, or wrong within us. This existential void drives our behaviors and desires, motivating us to strive for fulfillment. Yet, no matter what we achieve, that sense of incompleteness lingers.
 
@@ -36,18 +48,6 @@ A key question arises: What societal conditions contribute to ABDL’s existence
 Capitalism fuels this issue, selling the illusion that fulfillment can be purchased—whether through diapers, onesies, or toys. However, because our lack is intrinsic and subjective, external commodities can never truly fill it. Paradoxically, ABDL is both a product of hyper-materialist culture and a potential escape from it. If engaged with meaningfully, ABDL can serve as a tool for self-exploration rather than a mere mask for deficiency.
 
 What follows is a synthesis of ABDL as a conceptual model for Meaning-Making Praxis—a way to reframe ABDL as a practice for self-development, rather than solely comfort or sexual release, transmuting it into something more empowering and emancipatory that enriches our everyday lives across all dimensions of our human experience.
-
-
-# CONTENTS
-1. [ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-a-response-to-alienation-and-grief-and-a-path-to-self-realisation-)
-2. [ABDL as Entelechy: A Path to Self-Realisation](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
-3. [ABDL Identity Erotics](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-identity-erotics-)
-4. [ABDL Meaning-Making Praxis](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-meaning-making-praxis-)
-5. [The Dispersion of Sexual Fragments: ABDL as a Neosexuality](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#the-dispersion-of-sexual-fragments-abdl-as-a-neosexuality)
-6. [ABDL is Social Rebellion](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-is-social-rebellion)
-7. [ABDL x Transpersonal Ecopsychology: Regressing or Reconnecting?](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#abdl-x-transpersonal-ecopsychology-regressing-or-reconnecting)
-8. [Explanatory Notes](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#explanatory-notes-)
-9. [Further Reading and References](https://github.com/KidLukie/ABDL-A-Path-to-Self-Realisation/blob/main/README.md#further-reading-and-references-)
 
 
 # ABDL: A Response to Alienation and Grief, and A Path to Self-Realisation <br/>
